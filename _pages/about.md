@@ -16,4 +16,4 @@ Check out my [CV](/files/CV.pdf) for more about me!
 
 ## News
 - **Aug. 2023** I moved to Nashville, TN for studying PhD.
-- **May. 2023** I married to Elsie!
+- **May. 2023** I married Elsie!
